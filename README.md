@@ -1,0 +1,4 @@
+- 👋 Hi, I’m Gaurav
+- 👀 I’m interested in codes
+- 🌱 I’m currently learning to live peacefully
+- 💞️ I’m looking to collaborate on any fine work
